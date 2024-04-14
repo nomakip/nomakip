@@ -5,5 +5,3 @@ hiiiiiiieieieeyeye
 
 
 ![Alt text](https://media.tenor.com/3nDCTVFjdlQAAAAM/fkaswift-pokemon.gif) ![Alt text](https://media.tenor.com/lH0HTB-o0GwAAAAM/%E3%83%AD%E3%82%B1%E3%83%83%E3%83%88%E5%9B%A3-%E3%83%A0%E3%82%B5%E3%82%B7.gif) ![Alt text](https://media.tenor.com/T6MKAi1WFooAAAAM/crossdressing-team-rocket.gif)
-
-i love unikitty too yarrr 😈😈 ![Alt text](https://media.tenor.com/1N6ImmYK5YIAAAAM/unikitty-science.gif) ![Alt text](https://media.tenor.com/s3zT9e8O604AAAAM/master-frown-unikitty.gif) ![Alt text](https://media.tenor.com/D0KFzvcleoYAAAAM/unikitty-master-frown.gif)
